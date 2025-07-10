@@ -14,4 +14,4 @@
 分类和标签系统完善，便于用户根据偏好筛选，如剧情、激情、素人等多种分类齐全，支持关键词搜索，方便快速定位资源。  
 综上所述，国产精品无码1区2区3区资源在专业平台的加持下，为用户提供了安全、高效、舒适的观看体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/aiy456547/ribenaa5432303 )</span>
